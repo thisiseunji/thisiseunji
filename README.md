@@ -9,4 +9,4 @@
 </div>
 
 <div align="center">
-<a href="monahk93@gmail.com"><b>📧email📧</b></a>
+<a href="monahk93@gmail.com"><b>📧email me!📧</b></a>
